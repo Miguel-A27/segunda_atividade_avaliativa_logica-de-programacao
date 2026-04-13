@@ -1,0 +1,1 @@
+# segunda_atividade_avaliativa_logica-de-programacao
